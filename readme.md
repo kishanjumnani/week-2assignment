@@ -1,1 +1,1 @@
-https://nsb199.github.io/weekly-test-2/
+https://kishjumn27.github.io/week-2assignment/
